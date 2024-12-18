@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning on the job
 - 💞️ I’m looking to collaborate on any team where my skills are needed.
 - 📫 You can reach me on 08039360664 and kenechukwuosemwegie@gmail.com
-- - My skills in graphic designs, writing,and content creation for clients will be of benefit to your organ8zation
+- - My skills in graphic designs, writing and content creation for clients will be of benefit to your organization
